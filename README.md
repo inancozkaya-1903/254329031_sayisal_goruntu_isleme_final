@@ -1,1 +1,0 @@
-# 254329031_sayisal_goruntu_isleme_final
